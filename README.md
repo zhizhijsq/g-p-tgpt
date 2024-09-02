@@ -6,7 +6,7 @@
 ![2024-04-15 21 50 02_0](https://github.com/user-attachments/assets/3b2b3f12-a9df-4915-a855-97d81c4de3fd)
 
 
-### 1.DOVE加速器---稳定朋友好用的机场梯子
+### 1.DOVE加速器---稳定好用的机场梯子
 ### [DOVE加速器官网--点击直达](https://dove8.cc/a.php?alavBTtF8UB )
 
 #### 推荐指数：⭐⭐⭐⭐⭐
